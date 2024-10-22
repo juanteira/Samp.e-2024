@@ -2,4 +2,4 @@
 
 # [Proyecto Samp.E - IMPA TRQ] (https://www.instagram.com/samp.e_/)
 
-<https://github.com/user-attachments/assets/c91129ad-89b4-4022-a09c-8ce85a841182>
+<img src="/LOGO/LOGO SAMP.E.png" height="100" width"450" />
