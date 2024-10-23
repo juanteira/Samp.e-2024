@@ -20,21 +20,21 @@ Somos un grupo de alumnos de la E.E.S.T. N°7 "Taller Regional Quilmes (IMPA)
 
 * 📧 juaniteira@gmail.com
 
-* [LinkedIn](https://www.linkedin.com/in/juan-ignacio-teira-rodriguez-832899302/)
+* 💼 [LinkedIn](https://www.linkedin.com/in/juan-ignacio-teira-rodriguez-832899302/)
 
 ### Martinez, Valentin Ivan
 * 📷 [Instagram](https://www.instagram.com/_valencioo/) 
 
 * 📧 valenm918@gmail.com
 
-* [LinkedIn](https://www.linkedin.com/in/valentin-ivan-martinez-210978302/)
+* 💼 [LinkedIn](https://www.linkedin.com/in/valentin-ivan-martinez-210978302/)
 
 ### Nicolas Lionel Medina
 * 📷 [Instagram](https://www.instagram.com/_nicoo.05/)
  
 * 📧 nico.me1208@gmail.com
 
-* [LinkedIn](https://www.linkedin.com/in/nicolas-lionel-medina-719976302/)
+* 💼 [LinkedIn](https://www.linkedin.com/in/nicolas-lionel-medina-719976302/)
 
 ### Alejo Roman Muñoz
 * 📷 [Instagram](https://www.instagram.com/alejoroo_/)
@@ -46,7 +46,7 @@ Somos un grupo de alumnos de la E.E.S.T. N°7 "Taller Regional Quilmes (IMPA)
 
 * 📧 diaz.oliverio06@gmail.com
 
-* [LinkeIn](https://www.linkedin.com/in/olidiazz/)
+* 💼 [LinkeIn](https://www.linkedin.com/in/olidiazz/)
 
 ### Cesar Daniel Moreno Vera
 * 📷 [Instagram](https://www.instagram.com/cesar.daniel__/)
@@ -58,7 +58,7 @@ Somos un grupo de alumnos de la E.E.S.T. N°7 "Taller Regional Quilmes (IMPA)
 
 * 📧pavlovichmaxi28@gmail.com
 
-* [LinkedIn](https://www.linkedin.com/in/maxipavlovich/)
+* 💼 [LinkedIn](https://www.linkedin.com/in/maxipavlovich/)
 
 ## Contactanos
 
